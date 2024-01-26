@@ -1,10 +1,10 @@
 ### Olá, Eu sou o Eric William da Silva Marques 🙂
 
-23|Maringá -PR🌳♥️;
+24|Maringá -PR🌳♥️;
 
 Gamer🎮;
 
-Desenvolvedor JR - Gazin Tech💻
+Desenvolvedor PL - Gazin Tech💻
 
 ADS - Unicesumar👨‍🎓;
 
